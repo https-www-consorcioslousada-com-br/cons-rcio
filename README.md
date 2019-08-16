@@ -1,2 +1,2 @@
-# cons-rcio
+# consórcio
 Consórcios, Renault, Consórcios Lousada
